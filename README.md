@@ -8,9 +8,9 @@ Cursando Ciências da Computação 1º Semestre / 4 anos
 -** Linguagem de Programação em C**
 
 Onde você pode me encontrar:
-https://www.linkedin.com/feed/
-https://www.instagram.com/
-https://www.facebook.com/marcos.dutra.7739
+- https://www.linkedin.com/feed/
+- https://www.instagram.com/
+- https://www.facebook.com/marcos.dutra.7739
 
           
 
