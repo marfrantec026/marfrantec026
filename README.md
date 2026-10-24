@@ -7,8 +7,7 @@ Cursando Ciências da Computação 1º Semestre / 4 anos
 - 💻 Atualmente focado em:
 -** Linguagem de Programação em C**
 
-<img width="50" hight="50" src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons//-.svg" />
-           
+          
 
 
 
