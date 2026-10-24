@@ -10,15 +10,6 @@ Cursando Ciências da Computação 1º Semestre / 4 anos
 - Também trabalhei como Eletrotécnico em diversas empresas, sempre no setor de Ensaios Elétricos em Equipamentos de Segurança;
 - Tenho conhecimento como administrativo em entrada, armazenamento e saída de máquinas e equipamentos em Obras da Construção Civil;
 
-
-
-
-
-
-
-
-
-
 Onde você pode me encontrar:
 - https://www.linkedin.com/feed/
 - https://www.instagram.com/
