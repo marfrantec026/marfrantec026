@@ -9,6 +9,8 @@ Cursando Ciências da Computação 1º Semestre / 4 anos
 
 Onde você pode me encontrar:
 https://www.linkedin.com/feed/
+https://www.instagram.com/
+
 
           
 
